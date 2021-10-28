@@ -7,6 +7,8 @@ thats all u should know abt me
 forum.robloxscripts: https://forum.robloxscripts.com/member.php?action=profile&uid=3617
 
 languages i code: 
+
+
 ![image](https://user-images.githubusercontent.com/79180549/139174262-6b20925b-77bc-4be0-b298-aa5eff4896a5.png)
 ![image](https://user-images.githubusercontent.com/79180549/139174282-ade82fe7-da70-47f0-9a6d-60365b2ed41e.png)
 ![image](https://user-images.githubusercontent.com/79180549/139174298-64d99e9a-c28b-43c0-a266-8e66eb9e9bb1.png)
