@@ -1,13 +1,6 @@
-sup im cheirmen i develop codes in lua, js, and #
-i make 🌟 "professinal" 🌟 websites as you can tell i cant even verify an ssl
-i create alot of roblox crash scripts for all types of games
-i like to showcase my scripts on yt
+im pro
 
 thats all u should know abt me
-forum.robloxscripts: https://forum.robloxscripts.com/member.php?action=profile&uid=3617
-
-languages i code: 
-
 
 ![image](https://user-images.githubusercontent.com/79180549/139174262-6b20925b-77bc-4be0-b298-aa5eff4896a5.png)
 ![image](https://user-images.githubusercontent.com/79180549/139174282-ade82fe7-da70-47f0-9a6d-60365b2ed41e.png)
